@@ -1,3 +1,3 @@
-✨👩‍💻Autodidacta en programación de día
+👩‍💻Autodidacta en programación de día
+📚Estudiante de electrónica de noche
 
-🌙📚Estudiante de electrónica de noche
